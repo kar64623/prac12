@@ -1,3 +1,3 @@
 # Karim López García
-https://github.com/kar64623/prac12
+https://kar64623.github.io/kar64623/prac12
 
